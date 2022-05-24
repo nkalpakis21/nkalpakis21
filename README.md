@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Nick Kalpakis
-- 🌱 Growth Engineer @ Dispute
+- Engineer @ Dispute
 - 📫 nkalpakis21@gmail.com
 - 🐦 Kalpizzy7
