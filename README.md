@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Nick Kalpakis
-- Engineer @ Dispute
+- Engineer @ Sune
 - 📫 nkalpakis21@gmail.com
 - 🐦 Kalpizzy7
